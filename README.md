@@ -18,4 +18,4 @@
     我的：商品收藏、场馆收藏以及相关设置等。
       
   任何意见建议, 请联系我们: 
-  "威客竞技-专业竞技预约联盟"官方邮箱: zhengzhouhuahuo@163.com
+  "威客竞技-专业竞技预约联盟"官方邮箱: RoderickDonahuecLmTtT@yahoo.com
